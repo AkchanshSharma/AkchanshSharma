@@ -1,10 +1,11 @@
-- 👋 Hi, I’m @AkchanshSharma
-- 👀 I’m interested in playing Drum.
-- 🌱 I’m currently learning C#.
-- 💞️ The type of person I am means you will be getting someone in your team who is hungry to learn, enthusiastic, and eager to impress. 
-- 📫 How to reach me Email at akchansh.kumar@gmail.com
+Hey ![Hnet com-image (2)](https://user-images.githubusercontent.com/102026095/160905036-cc92cdab-9190-420d-a612-75632f7c2144.gif), I'm [Akchansh!](https://bio.link/akchansh) 
 
-<!---
-AkchanshSharma/AkchanshSharma is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+<hr>
+
+![Believer](https://user-images.githubusercontent.com/102026095/160911983-3f5a3278-b615-4aff-b6a3-a40d9dbf08bb.jpg)
+
+
+[Connect with me 💬](https://bio.link/akchansh)
+
+
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=page.id)
