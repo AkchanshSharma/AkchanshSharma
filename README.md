@@ -1,4 +1,4 @@
-Hey ![Hnet com-image (2)](https://user-images.githubusercontent.com/102026095/160905036-cc92cdab-9190-420d-a612-75632f7c2144.gif), I'm [Akchansh!](https://bio.link/akchansh) 
+<b>Hey ![Hnet com-image (2)](https://user-images.githubusercontent.com/102026095/160905036-cc92cdab-9190-420d-a612-75632f7c2144.gif), I'm [Akchansh!](https://bio.link/akchansh)</b>
 
 <hr>
 
